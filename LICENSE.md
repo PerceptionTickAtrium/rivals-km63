@@ -1,4 +1,4 @@
-#  
+#  updated rivals Scripts offers the most advanced rivals Script, with auto-upgrade and undetectable. Perfect for dominating any match.
 
 
 
